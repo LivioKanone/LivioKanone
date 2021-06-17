@@ -6,4 +6,4 @@ You can read a bit about what I am doing at U-NEXT [here](https://note.unext.co.
 
 ✍️ You can find my previous work at [canonica.jp](https://www.canonica.jp/) and access it with the Password `guest123`
 
-I speak 🇯🇵 Japanese 🇩🇪 German 🇬🇧 English and 🇨🇭 Swiss German
+ 🇯🇵 こんにちは 🇩🇪 Guten Tag 🇬🇧 Hello and 🇨🇭 Grüezi
