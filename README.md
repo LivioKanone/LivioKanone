@@ -4,4 +4,4 @@ I am a UI/UX Designer and currently the Product Design Lead at [U-NEXT](https://
 
 ✍️ You can find my previous work here at [canonica.jp](https://www.canonica.jp/) and access it with the Password `guest123`
 
-🗣 I speak 🇯🇵 Japanese 🇩🇪 German 🇬🇧 English and 🇨🇭 Swiss German
+I speak 🇯🇵 Japanese 🇩🇪 German 🇬🇧 English and 🇨🇭 Swiss German
